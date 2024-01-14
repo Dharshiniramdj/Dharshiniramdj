@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dharshiniramdj
+- 👋 Hi, I’m Dharshini 
 - 
 
 <!---
